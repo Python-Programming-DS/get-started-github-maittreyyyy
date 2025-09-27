@@ -1,0 +1,1 @@
+I’m a curious researcher who loves reading and is always learning. Right now I’m focused on advancing my research—sharpening methodsmand turning insights into impact. Whether I’m annotating papers or exploring new topics, I thrive on thoughtful questions, clear writing, and steady progress.
